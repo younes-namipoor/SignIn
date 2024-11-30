@@ -1,7 +1,5 @@
+![Screenshot (71)](https://github.com/user-attachments/assets/104497a9-6aa0-45a6-ae70-2112bf48e05f)
 
-
-
-![Screenshot (70)](https://github.com/user-attachments/assets/0189f089-3a74-4b94-a64a-e0df03147544)
 
 
 
